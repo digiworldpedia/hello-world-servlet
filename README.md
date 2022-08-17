@@ -42,4 +42,5 @@ who moved my chees?
 IKIGAI is a very good book based upon japanies lifestyle
 Sagara kule dine jhioti
 raat dabi paw chali jati hai
-123456 and 78 
+123456 and 78
+you have study hard if you want to get the job 
