@@ -44,3 +44,4 @@ Sagara kule dine jhioti
 raat dabi paw chali jati hai
 123456 and 78
 you have study hard if you want to get the job 
+Only talh never bring the fortune.... to have that one should act and continuosly act on that field.
