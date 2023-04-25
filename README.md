@@ -45,3 +45,4 @@ raat dabi paw chali jati hai
 123456 and 78
 you have study hard if you want to get the job 
 Only talh never bring the fortune.... to have that one should act and continuosly act on that field.
+It is ok to saty calm but when you keep it longer then people will think you are a looser! so when necessary take your stand with full rage.
