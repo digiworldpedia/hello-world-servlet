@@ -48,3 +48,4 @@ Only talh never bring the fortune.... to have that one should act and continuosl
 It is ok to saty calm but when you keep it longer then people will think you are a looser! so when necessary take your stand with full rage.
 today is 18th july in 2023
 If you want staty happy and being respectable then stay away from girls because they are the time destroyer!
+stay focusd otherwise your time will tell you 
